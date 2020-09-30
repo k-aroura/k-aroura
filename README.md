@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about python
 - 📫 How to reach me: you can't :P
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am gay
+- ⚡ Fun fact: I am iron man
